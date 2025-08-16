@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1389682207530156113/1402686067768950876/Zonder_titel888_20250806180344.png?ex=6894d0b3&is=68937f33&hm=5457494405a2daabd2bcc842cfec7179d0ccad2762f4ad98b8ed78cb5eacf168&=&format=webp&quality=lossless&width=774&height=603)
+![](https://files.catbox.moe/s5kbef.png)
